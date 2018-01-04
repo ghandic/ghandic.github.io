@@ -1,1 +1,0 @@
-# ghandic.github.io
